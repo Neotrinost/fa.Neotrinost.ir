@@ -2,4 +2,4 @@
 
 Neotrinost Site - Persian version
 
-Neotrinost LLC. © 2020 - 2021.
+© 2020 - 2021. Neotrinost LLC.
